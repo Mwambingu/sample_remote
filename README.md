@@ -1,3 +1,4 @@
 #HOW U USE
 **git and github
-**like a freking pro
+**like a freaking pro!!
+Get urself some upgraded skillz bro!!
